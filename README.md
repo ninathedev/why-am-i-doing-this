@@ -131,11 +131,6 @@ Of course we do!
 Do we all agree?
 Of course we do!
 
-…
-
-
-…
-
 [Chorus 4]
 Apostrophes
 Semicolon, question mark, 
@@ -154,5 +149,5 @@ Vibing like an awesome pro
 Use markings right!
 
 Now you learned some punctuations
-Now use like a pro-o-owooah 
+Now use it like a pro-o-oahhh
 Use markings right!
