@@ -32,7 +32,7 @@ For the sentences to blend
 Use periods right!
 
 (Part 3)
-The is use of comma is to pause
+The use of comma is to pause
 And it continues on
 Used to avoid getting lost
 Use commas right!
